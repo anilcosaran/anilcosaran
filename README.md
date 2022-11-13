@@ -1,2 +1,2 @@
-👋 Hi, I’m @anilcosaran
+👋 Hi, I’m Anıl
 
